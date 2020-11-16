@@ -1,3 +1,3 @@
 # Dog
-### I can shelter a gog
+### I can shelter a dog
 !Без названия.jpg
